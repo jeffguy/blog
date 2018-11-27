@@ -44,7 +44,7 @@ But, of course, I'll never have an ideal relationship with God by doing things m
 
 So, first question. Is there any command God has given me that I haven't obeyed? If so, I'm not doing things God's way.
 
-Second question: Am I <a href="https://www.biblegateway.com/passage/?search=matt+7:7-8&version=ESV">seeking</a> God with <a href="https://www.biblegateway.com/passage/?search=deut+4:29&version=ESV">all my heart and soul</a>? Do I <a href="https://www.biblegateway.com/passage/?search=deut+6:5&version=ESV">love</a> <a href="https://www.biblegateway.com/passage/?search=matt+22:37-38&version=NIV">Him</a>?
+Second question: Am I <a href="https://www.biblegateway.com/passage/?search=matt+7:7-8&version=ESV">seeking</a> God with <a href="https://www.biblegateway.com/passage/?search=deut+4:29&version=ESV">all my heart and soul</a>? <a href="https://www.biblegateway.com/passage/?search=deut+6:5&version=ESV">Do I</a> love <a href="https://www.biblegateway.com/passage/?search=matt+22:37-38&version=NIV">Him</a>?
 
 I don't know exactly what it means to "love God", but it at least means to <a href="https://www.biblegateway.com/passage/?search=matt+13:44&version=ESV">value God more than anything else</a>. Honestly, I have not been seeking God all that hard lately. I guess that's because I don't value Him accurately.
 
