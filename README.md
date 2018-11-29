@@ -1,9 +1,9 @@
-## Expectations from God
+## Growing in Intimacy with God
 
-What should I expect from God?
-or "What do I want from God?"
-or "What should I want from God?"
-or "What does an ideal relationship with God look like?"
+Alternate titles:
+* What do I want from God?
+* What should I want from God?
+* What does an ideal relationship with God look like?
 
 I don't know what an ideal relationship with God looks like. But, I'll share where I'm at. This post contains:
 1. An analogy
