@@ -54,9 +54,9 @@ Of course, I'll never have an ideal relationship with God by doing things my way
 
 Clearly, in this relationship, I'm not the initiator. I've pushed Him away more times than I can count. But [God wants a relationship](https://www.biblegateway.com/passage/?search=Romans+5:6-11&version=ESV) with me anyway. He sent Jesus to [live and die so that relationship can be restored](https://www.biblegateway.com/passage/?search=Romans+5:6-11&version=ESV). I can never earn God's love. [I'm glad He loves me anyway](https://www.biblegateway.com/passage/?search=Ephesians+2&version=ESV).
 
-So, first question. *Is there any command God has given me that I haven't obeyed?* If so, I'm not doing things God's way.
+So, first question. **Is there any command God has given me that I haven't obeyed?** If so, I'm not doing things God's way.
 
-Second question: *Am I [seeking](https://www.biblegateway.com/passage/?search=matt+7:7-8&version=ESV) God with [all my heart and soul](https://www.biblegateway.com/passage/?search=deut+4:29&version=ESV)?* [Do I](https://www.biblegateway.com/passage/?search=deut+6:5&version=ESV) love [Him](https://www.biblegateway.com/passage/?search=matt+22:37-38&version=NIV)?
+Second question: **Am I [seeking](https://www.biblegateway.com/passage/?search=matt+7:7-8&version=ESV) God with [all my heart and soul](https://www.biblegateway.com/passage/?search=deut+4:29&version=ESV)?** [Do I](https://www.biblegateway.com/passage/?search=deut+6:5&version=ESV) love [Him](https://www.biblegateway.com/passage/?search=matt+22:37-38&version=NIV)?
 
 I don't know exactly what it means to "love God", but it at least means to [value God more than anything else](https://www.biblegateway.com/passage/?search=matt+13:44&version=ESV). Honestly, I have not been seeking God all that hard lately. I guess that's because I don't value Him accurately.
 
